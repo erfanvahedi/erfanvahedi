@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @erfanvahedi
-- 🌱 I’m currently learning 'dajngo'
 - 📫 How to reach me 'dm me on instagram @erfanvahedi_'
 
 <!---
